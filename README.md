@@ -1,2 +1,2 @@
-## Hi I am Priyankan
+## Hi, I am Priyankan, Undergraduate Student, CS, BRAC University
 
